@@ -5,4 +5,4 @@
 - **University:** Universiti Teknologi PETRONAS
 - **GitHub:** [@phynillton](https://github.com/phynillton)
 - **Fun fact:** Hindi is my mother tongue 🎉
-- **Currently learning:** Git & GitHub 🚀
+- **Currently learning:** Git & GitHub 🔥🔥🔥
